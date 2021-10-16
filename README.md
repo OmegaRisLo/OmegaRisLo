@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @OmegaRisLo
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on Minecraft
